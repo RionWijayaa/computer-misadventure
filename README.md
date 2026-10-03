@@ -11,7 +11,7 @@ All of this are written by myself, *sometimes with AI help but will never be ful
 - Age: Ehh, legal enough where I live.
 - Nationality: Indonesian
 - Hobby: Computers, and others (Economic, motorcycle/cars, and so on)
-Thank you and have a nice day! 
+* Thank you and have a nice day! 
 
 
 # Links to my Documentation and Shenanigan.
